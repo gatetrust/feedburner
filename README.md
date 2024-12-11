@@ -5,7 +5,17 @@ Project developed by GATE Trust - http://gatetrust.org ,
 Supporting team - Institute of Solar Technology - http://istindia.org 
 Academy of EV Technology - http://aevt.org 
 Corporate Partner - VMAXO - https://vmaxo.com & MLAXI - https://mlaxi.com
-
+https://gatetrust.org/about-us.php
+https://istindia.org/courses/lithium-battery-pack-assembly.php
+https://aevt.org/courses/electric-vehicle-battery-pack-technology.php
+https://evidyalab.com/
+https://emrdc.org/
+https://srtechno.in/
+https://evacademy.in/course/li-ion-battery-pack-assembly-line
+https://aevt.in/courses/index.php
+https://istskill.in/course/solar-pv-system-design-engineer
+https://emr.gatetrust.org/ 
+https://decofort.in/ 
 Feedburner use for blogger sites:
 <a href="https://gatetrust.blogspot.com/">gatetrust</a> | 
 <a href="https://gpsol.blogspot.com/">gpsol</a> | 
@@ -305,7 +315,122 @@ Feedburner use for blogger sites:
 <a href="http://headscarf.eklablog.com/">Headscarf</a> | 
 <a href="http://backless-bra.eklablog.com/">Backless Bra</a> | 
 <a href="http://willex.eklablog.com/">Willex</a> | 
-<a href="http://svmax.eklablog.com/">Svmax</a> | 
+<a href="http://svmax.eklablog.com/">Svmax</a> | <a href="https://emr.gatetrust.org/tag/760-w-topcon-module">760-w-topcon-module</a> 
+<a href="https://emr.gatetrust.org/tag/760-w-topcon-module-price">760-w-topcon-module-price</a> 
+<a href="https://emr.gatetrust.org/tag/ac-cable-losses">ac-cable-losses</a> 
+<a href="https://emr.gatetrust.org/tag/array-mismatch-loss">array-mismatch-loss</a> 
+<a href="https://emr.gatetrust.org/tag/battery-swapping">battery-swapping</a> 
+<a href="https://emr.gatetrust.org/tag/best-rooftop-solar-loan-in-india-state-wise-report">best-rooftop-solar-loan-in-india-state-wise-report</a> 
+<a href="https://emr.gatetrust.org/tag/bmw-ix5-hydrogen">bmw-ix5-hydrogen</a> 
+<a href="https://emr.gatetrust.org/tag/chargezone">chargezone</a> 
+<a href="https://emr.gatetrust.org/tag/china-710-gw">china-710-gw</a> 
+<a href="https://emr.gatetrust.org/tag/connection-loss">connection-loss</a> 
+<a href="https://emr.gatetrust.org/tag/dc-cable-losses">dc-cable-losses</a> 
+<a href="https://emr.gatetrust.org/tag/demand-incentives-for-ev">demand-incentives-for-ev</a> 
+<a href="https://emr.gatetrust.org/tag/dust-and-dirt-loss">dust-and-dirt-loss</a> 
+<a href="https://emr.gatetrust.org/tag/dust-loss">dust-loss</a> 
+<a href="https://emr.gatetrust.org/tag/e-2ws">e-2ws</a> 
+<a href="https://emr.gatetrust.org/tag/e-3ws">e-3ws</a> 
+<a href="https://emr.gatetrust.org/tag/e-ambulances">e-ambulances</a> 
+<a href="https://emr.gatetrust.org/tag/e-buses">e-buses</a> 
+<a href="https://emr.gatetrust.org/tag/e-trucks">e-trucks</a> 
+<a href="https://emr.gatetrust.org/tag/emps-2024">emps-2024</a> 
+<a href="https://emr.gatetrust.org/tag/ev-charging-infrastructure-companies-in-india">ev-charging-infrastructure-companies-in-india</a> 
+<a href="https://emr.gatetrust.org/tag/ev-charging-infrastructure-in-india">ev-charging-infrastructure-in-india</a> 
+<a href="https://emr.gatetrust.org/tag/ev-charging-station-market-size-in-india">ev-charging-station-market-size-in-india</a> 
+<a href="https://emr.gatetrust.org/tag/failures-in-solar-asset-management">failures-in-solar-asset-management</a> 
+<a href="https://emr.gatetrust.org/tag/fcev">fcev</a> 
+<a href="https://emr.gatetrust.org/tag/germany-90-gw">germany-90-gw</a> 
+<a href="https://emr.gatetrust.org/tag/government-initiatives">government-initiatives</a> 
+<a href="https://emr.gatetrust.org/tag/government-subsidies">government-subsidies</a> 
+<a href="https://emr.gatetrust.org/tag/grants-for-capital-assets-for-ev">grants-for-capital-assets-for-ev</a> 
+<a href="https://emr.gatetrust.org/tag/green-grids-initiative">green-grids-initiative</a> 
+<a href="https://emr.gatetrust.org/tag/green-hydrogen">green-hydrogen</a> 
+<a href="https://emr.gatetrust.org/tag/green-hydrogen-company">green-hydrogen-company</a> 
+<a href="https://emr.gatetrust.org/tag/green-hydrogen-mission">green-hydrogen-mission</a> 
+<a href="https://emr.gatetrust.org/tag/green-hydrogen-news-india">green-hydrogen-news-india</a> 
+<a href="https://emr.gatetrust.org/tag/green-hydrogen-production">green-hydrogen-production</a> 
+<a href="https://emr.gatetrust.org/tag/green-hydrogen-production-in-india">green-hydrogen-production-in-india</a> 
+<a href="https://emr.gatetrust.org/tag/green-hydrogen-projects-in-india">green-hydrogen-projects-in-india</a> 
+<a href="https://emr.gatetrust.org/tag/green-hydrogen-uses">green-hydrogen-uses</a> 
+<a href="https://emr.gatetrust.org/tag/growth-of-ev-charging-infrastructure-in-india-2024">growth-of-ev-charging-infrastructure-in-india-2024</a> 
+<a href="https://emr.gatetrust.org/tag/highest-rooftop-solar-capacity-in-india-2024">highest-rooftop-solar-capacity-in-india-2024</a> 
+<a href="https://emr.gatetrust.org/tag/honda-cr-v-e">honda-cr-v-e</a> 
+<a href="https://emr.gatetrust.org/tag/hydrogen-fuel-cell-industrial-processes">hydrogen-fuel-cell-industrial-processes</a> 
+<a href="https://emr.gatetrust.org/tag/hydrogen-fuel-cell-industry-future">hydrogen-fuel-cell-industry-future</a> 
+<a href="https://emr.gatetrust.org/tag/hydrogen-fuel-cell-industry-in-india">hydrogen-fuel-cell-industry-in-india</a> 
+<a href="https://emr.gatetrust.org/tag/hydrogen-fuel-cell-market">hydrogen-fuel-cell-market</a> 
+<a href="https://emr.gatetrust.org/tag/hydrogen-fuel-cell-technologies">hydrogen-fuel-cell-technologies</a> 
+<a href="https://emr.gatetrust.org/tag/hydrogen-fuel-cell-vehicles-fcevs">hydrogen-fuel-cell-vehicles-fcevs</a> 
+<a href="https://emr.gatetrust.org/tag/hydrogen-powered-ev">hydrogen-powered-ev</a> 
+<a href="https://emr.gatetrust.org/tag/hyundai-nexo">hyundai-nexo</a> 
+<a href="https://emr.gatetrust.org/tag/iam-loss">iam-loss</a> 
+<a href="https://emr.gatetrust.org/tag/improved-energy-production">improved-energy-production</a> 
+<a href="https://emr.gatetrust.org/tag/india-solar-energy-target">india-solar-energy-target</a> 
+<a href="https://emr.gatetrust.org/tag/india-894-gw">india-894-gw</a> 
+<a href="https://emr.gatetrust.org/tag/indian-pv-solar-achievements-2024">indian-pv-solar-achievements-2024</a> 
+<a href="https://emr.gatetrust.org/tag/indian-pv-solar-update-today">indian-pv-solar-update-today</a> 
+<a href="https://emr.gatetrust.org/tag/indian-solar-cells">indian-solar-cells</a> 
+<a href="https://emr.gatetrust.org/tag/indian-solar-panel">indian-solar-panel</a> 
+<a href="https://emr.gatetrust.org/tag/installed-capacity-in-india-2024">installed-capacity-in-india-2024</a> 
+<a href="https://emr.gatetrust.org/tag/international-solar-alliance-isa-in-2018">international-solar-alliance-isa-in-2018</a> 
+<a href="https://emr.gatetrust.org/tag/international-solar-news">international-solar-news</a> 
+<a href="https://emr.gatetrust.org/tag/inverter-clipping-loss">inverter-clipping-loss</a> 
+<a href="https://emr.gatetrust.org/tag/inverter-loss">inverter-loss</a> 
+<a href="https://emr.gatetrust.org/tag/irradiation-loss">irradiation-loss</a> 
+<a href="https://emr.gatetrust.org/tag/japan-87-gw">japan-87-gw</a> 
+<a href="https://emr.gatetrust.org/tag/lid-loss">lid-loss</a> 
+<a href="https://emr.gatetrust.org/tag/losses-in-solar-pv-power-generation-in-india">losses-in-solar-pv-power-generation-in-india</a> 
+<a href="https://emr.gatetrust.org/tag/losses-in-solar-pv-power-generation-pdf">losses-in-solar-pv-power-generation-pdf</a> 
+<a href="https://emr.gatetrust.org/tag/low-radiation-loss">low-radiation-loss</a> 
+<a href="https://emr.gatetrust.org/tag/module-degradation-loss">module-degradation-loss</a> 
+<a href="https://emr.gatetrust.org/tag/module-quality-loss">module-quality-loss</a> 
+<a href="https://emr.gatetrust.org/tag/national-green-hydrogen-mission">national-green-hydrogen-mission</a> 
+<a href="https://emr.gatetrust.org/tag/non-dcr-solar-module">non-dcr-solar-module</a> 
+<a href="https://emr.gatetrust.org/tag/ohmic-wiring-loss">ohmic-wiring-loss</a> 
+<a href="https://emr.gatetrust.org/tag/one-world-one-grid-meaning">one-world-one-grid-meaning</a> 
+<a href="https://emr.gatetrust.org/tag/osowog">osowog</a> 
+<a href="https://emr.gatetrust.org/tag/phased-manufacturing-program">phased-manufacturing-program</a> 
+<a href="https://emr.gatetrust.org/tag/pid-loss">pid-loss</a> 
+<a href="https://emr.gatetrust.org/tag/pm-e-drive">pm-e-drive</a> 
+<a href="https://emr.gatetrust.org/tag/pm-solar-rooftop-yojana-2025">pm-solar-rooftop-yojana-2025</a> 
+<a href="https://emr.gatetrust.org/tag/pm-surya-ghar-scheme">pm-surya-ghar-scheme</a> 
+<a href="https://emr.gatetrust.org/tag/pro-xl-series">pro-xl-series</a> 
+<a href="https://emr.gatetrust.org/tag/pv-is-low-loss-meaning">pv-is-low-loss-meaning</a> 
+<a href="https://emr.gatetrust.org/tag/pv-system-loss-calculation">pv-system-loss-calculation</a> 
+<a href="https://emr.gatetrust.org/tag/reflection-loss">reflection-loss</a> 
+<a href="https://emr.gatetrust.org/tag/rooftop-solar-loan-in-india">rooftop-solar-loan-in-india</a> 
+<a href="https://emr.gatetrust.org/tag/rooftop-solar-loan-in-india-state-wise-report">rooftop-solar-loan-in-india-state-wise-report</a> 
+<a href="https://emr.gatetrust.org/tag/sapthavahna">sapthavahna</a> 
+<a href="https://emr.gatetrust.org/tag/shading-loss">shading-loss</a> 
+<a href="https://emr.gatetrust.org/tag/soiling-loss">soiling-loss</a> 
+<a href="https://emr.gatetrust.org/tag/solar-cell-manufacturing">solar-cell-manufacturing</a> 
+<a href="https://emr.gatetrust.org/tag/solar-inverter-losses">solar-inverter-losses</a> 
+<a href="https://emr.gatetrust.org/tag/solar-news-today-india">solar-news-today-india</a> 
+<a href="https://emr.gatetrust.org/tag/solar-panel-manufacturing">solar-panel-manufacturing</a> 
+<a href="https://emr.gatetrust.org/tag/solar-panel-mismatch-losses">solar-panel-mismatch-losses</a> 
+<a href="https://emr.gatetrust.org/tag/solar-panel-news-today">solar-panel-news-today</a> 
+<a href="https://emr.gatetrust.org/tag/solar-panels-temperature-coefficient">solar-panels-temperature-coefficient</a> 
+<a href="https://emr.gatetrust.org/tag/solar-policy-2024">solar-policy-2024</a> 
+<a href="https://emr.gatetrust.org/tag/solar-pv-system-losses">solar-pv-system-losses</a> 
+<a href="https://emr.gatetrust.org/tag/solar-rooftop-price">solar-rooftop-price</a> 
+<a href="https://emr.gatetrust.org/tag/spectral-loss">spectral-loss</a> 
+<a href="https://emr.gatetrust.org/tag/spmepci">spmepci</a> 
+<a href="https://emr.gatetrust.org/tag/state-wise-report">state-wise-report</a> 
+<a href="https://emr.gatetrust.org/tag/system-availability-loss">system-availability-loss</a> 
+<a href="https://emr.gatetrust.org/tag/tata-power">tata-power</a> 
+<a href="https://emr.gatetrust.org/tag/temperature-coefficient">temperature-coefficient</a> 
+<a href="https://emr.gatetrust.org/tag/temperature-coefficient-of-a-solar-cell">temperature-coefficient-of-a-solar-cell</a> 
+<a href="https://emr.gatetrust.org/tag/the-ev-charging-infrastructure">the-ev-charging-infrastructure</a> 
+<a href="https://emr.gatetrust.org/tag/the-ultimate-guide-to-pv-system-losses">the-ultimate-guide-to-pv-system-losses</a> 
+<a href="https://emr.gatetrust.org/tag/thermal-loss">thermal-loss</a> 
+<a href="https://emr.gatetrust.org/tag/tilt-angle-loss">tilt-angle-loss</a> 
+<a href="https://emr.gatetrust.org/tag/topcon-technology">topcon-technology</a> 
+<a href="https://emr.gatetrust.org/tag/toyota-mirai">toyota-mirai</a> 
+<a href="https://emr.gatetrust.org/tag/usa-200-gw">usa-200-gw</a> 
+<a href="https://emr.gatetrust.org/tag/waaree-modules">waaree-modules</a> 
+<a href="https://emr.gatetrust.org/tag/zero-emissions">zero-emissions</a> 
+
 <a href="http://zombiepa.eklablog.com/">Zombiepa</a> | 
 <a href="http://zingpay.eklablog.com/">	Zingpay	</a> | 
 <a href="http://appslib.eklablog.com/">Appslib</a> | 
